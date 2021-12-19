@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iamtheoneandonly
+- 👀 I’m interested in defi & crypto
+- 🌱 I’m currently learning being a better human
+- 💞️ I’m looking to collaborate on making the world a better place to be
+- 📫 How to reach me look inside your heart
